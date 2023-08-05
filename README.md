@@ -1,0 +1,2 @@
+# beginner
+motorola g75
